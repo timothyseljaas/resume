@@ -1,5 +1,6 @@
 # Tim Seljaas 
 timothy.seljaas@gmail.com
+
 801-915-1898
 
 ## Education
